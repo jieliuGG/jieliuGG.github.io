@@ -1,2 +1,1 @@
-# jieliuGG.github.io
-个人博客
+hell,my name is liujie,this is my first  personal  blog
